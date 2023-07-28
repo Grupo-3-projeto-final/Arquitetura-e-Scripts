@@ -1,0 +1,1 @@
+Utilizar o "https://app.diagrams.net" site para abrir o diagrama, ou acessar o seguinte link: "https://app.diagrams.net/#G1V5to_cY5HQFMFTlfUriW7UHQvPWj70-N"
